@@ -1,1 +1,0 @@
-# Kecerdasanbuatan_Fuzzy
